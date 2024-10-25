@@ -5,8 +5,7 @@
       a fundraising art book that will fund a 9 episode animated series from its sales.
      [ https://medium.com/@brandonscottdoty/open-call-77106bf03e3a](url) 
 - 📫 How to reach me ... Leave a message on my portfolio page [https://brandonscottdotyc932.myportfolio.com](url)
-     or you can email me at:   [ brandonscottdoty@gmail.com](url)   or if you wait until next week you may submit
-     the illustration on my website that is currently recieving an update from another Texan based in LA:   [bsdartism.com](url) 
+     or you can email me at:   [ brandonscottdoty@gmail.com](url)  
 - 😄 Pronouns: ... He/Him, but I prefer tobe verbs: Am, Is, Are, Was, Were, Have, Has, Had, Do, Does, Did, Can, Could, Shall, Should, Will, Would, May, Might, Must
 - ⚡ Fun fact: ... If you catch me acting the fool, I was destined for the part. Can you guess my Birthday?
 
